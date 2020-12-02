@@ -1,3 +1,4 @@
-# Welcome to my blog
+# Was is dis
 
-I'm glad you are here. I plan to talk about ...
+Guess you have lost your way. You shudnt be here ...
+It would be a good idea to go back home. 
